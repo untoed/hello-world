@@ -8,4 +8,4 @@ Yet, a human's mind only sleeps to convey physical recovery, not mental health a
 My surreal ambitions should not have been left to unconquerable dreams. 
 As far as physics will upstand my usurped limitations, my dreams are beyond the greatest of ambitions. 
 To adaptably change a dying planet with unbeknownst, yet irreversible effect is to
-allow my virtual realities to materialize from its unfortunate mentality.
+allow forth my own virtual realities to materialize from its unfortunate mentality.
